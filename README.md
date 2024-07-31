@@ -1,0 +1,2 @@
+# BelajarSatu
+untuk latihan doang
